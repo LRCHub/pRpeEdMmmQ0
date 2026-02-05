@@ -1,4 +1,4 @@
-# Shakira – Waka Waka (This Time for Africa) [The Official 2010 FIFA World Cup (TM) Song] (feat. Freshlyground)
+# Shakira – Waka Waka (This Time for Africa) [The Official 2010 FIFA World World Cup Song]（feat. Freshlyground）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
